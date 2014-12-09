@@ -2,4 +2,4 @@ MHACoin
 =======
 
 MHACoin
-Greed.
+Insane as usual.
