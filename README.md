@@ -1,0 +1,5 @@
+MHACoin
+=======
+
+MHACoin
+Greed.
